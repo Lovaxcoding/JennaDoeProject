@@ -30,7 +30,7 @@ Vous pouvez héberger ce site facilement sur :
 
 ## 📞 Contact
 
-Pour toute question ou amélioration, n'hésitez pas à me contacter à lnantenaina@email.com.
+Pour toute question ou amélioration, n'hésitez pas à me contacter à lnantenaina@gmail.com.
 
 ---
 
